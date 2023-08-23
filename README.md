@@ -1,2 +1,2 @@
 # first_repo
-Jaswitha Kalikiri - Northwest Missouri State University
+Jaswitha Kalikiri - Northwest Missouri State University, Maryville
